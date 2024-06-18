@@ -50,13 +50,12 @@ We have successfully delivered projects across various industries, including:
 Ready to take your business to the next level? Contact us today!
 
 - **Email:** team@thecrysoft.com
-- **Phone:** +254 (700) 667733
 
 ## Follow Us
 
 Stay updated with our latest news and projects:
 
-- **LinkedIn:** [Crysoft Labs](https://www.linkedin.com/company/crysoft-labs)
+- **LinkedIn:** [Crysoft Labs](https://www.linkedin.com/company/crysoftlabs)
 - **Twitter:** [@CrysoftLabs](https://twitter.com/CrysoftLabs)
 - **Facebook:** [Crysoft Labs](https://facebook.com/CrysoftLabs)
 
